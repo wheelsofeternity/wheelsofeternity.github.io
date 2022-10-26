@@ -1,6 +1,6 @@
-# Wheels of Eternity
-
 ![Colored Book Cover for Oneiszero](/images/coloredcover.jpg)
+
+# Wheels of Eternity
 
 The wheels of eternity is a universal idea of unity and equality. Wheels within wheels within wheels are these circles we share. 
 This idea is further described in the free downloadable PDF of the book _Oneiszero: A Universal Theory of Everything and Nothing_ which is offered to download [here](/oneiszero.pdf).
